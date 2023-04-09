@@ -4,4 +4,4 @@ Im a Protogen! My main interest is getting art from cool people!
 
 I use F2U bases. Dont make a fuss about using bases.
 
-Contacts are below!
+Contacts at bio.site/wisp
